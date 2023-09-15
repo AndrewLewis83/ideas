@@ -1,0 +1,1 @@
+Reference any modern news site, or website in general. It's a race for the bottom of the brain stem, so scantily clad women and a tagline that says something like "You won't believe what the cameraman caught next..." 
